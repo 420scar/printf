@@ -1,1 +1,1 @@
-teams of 2 people our team: Ibrahim Abdillah , Emmanuel Atuilik
+team of 2 people: Ibrahim Abdillah , Emmanuel Atuilik
